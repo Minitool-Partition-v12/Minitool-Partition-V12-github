@@ -1,4 +1,4 @@
-## Minitool-Partition-Wizard-Crack-for-Window | Minitool-Partition-Wizard-2025-Serial-Key ✔
+## Minitool-Partition-Wizard-Crack-for-Window 
 
 ![image](https://github.com/user-attachments/assets/d9bc2913-c9c6-4fdd-9567-14d50d21a92c)
 
